@@ -1,5 +1,5 @@
-go to the strawpage heh
-https://imymemine.straw.page
+Read my strawpage if you want, idk it's just here.
+Anyone can int btw I genuinely do not care
 
 
 
