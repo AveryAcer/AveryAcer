@@ -1,4 +1,5 @@
 Read my strawpage if you want, idk it's just here.
+https://acesrllycoolpage.straw.page
 Anyone can int btw I genuinely do not care
 
 
