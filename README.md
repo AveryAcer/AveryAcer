@@ -1,8 +1,4 @@
-Read my strawpage if you want, idk it's just here.
-https://acesrllycoolpage.straw.page
-Anyone can int btw I genuinely do not care
-
-![Ze _ me __ a ReGect SS](https://github.com/user-attachments/assets/5ba53869-815c-4cc6-931f-61ce71bb35df)
+Being remade come back laterrrr
 
 
 <!--
