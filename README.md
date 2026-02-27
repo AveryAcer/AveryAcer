@@ -1,5 +1,5 @@
-Check the strawpage!!
-<img width="887" height="887" alt="Screenshot 2026-02-27 16 21 00" src="https://github.com/user-attachments/assets/042706f2-3e32-4cdb-b44b-6a8f267104ea" />
+Check the strawpage!! It's linked under my profile.
+<img width="443" height="443" alt="Screenshot 2026-02-27 16 21 00" src="https://github.com/user-attachments/assets/042706f2-3e32-4cdb-b44b-6a8f267104ea" />
 
 
 <!--
