@@ -1,6 +1,6 @@
 "𝓘𝓯 𝔂𝓸𝓾 𝔀𝓪𝓷𝓽𝓮𝓭 𝓶𝓮 𝓽𝓸 𝓼𝓹𝓮𝓪𝓴..."
 
-![_ (43)](https://github.com/user-attachments/assets/0431fdcf-efc2-40b3-99c5-1dea3c6a2940)
+<img width="269" height="249" alt="image" src="https://github.com/user-attachments/assets/d047b017-f706-4498-b02f-e8f028748042" />
 
 "𝓦𝓱𝔂'𝓭 𝔂𝓸𝓾 𝓶𝓪𝓴𝓮 𝓶𝔂 𝓿𝓸𝓲𝓬𝓮 𝓼𝓽𝓾𝓽𝓽𝓮𝓻?"
 
