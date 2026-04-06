@@ -1,6 +1,8 @@
-Basic DNI criteria
+"𝓘𝓯 𝔂𝓸𝓾 𝔀𝓪𝓷𝓽𝓮𝓭 𝓶𝓮 𝓽𝓸 𝓼𝓹𝓮𝓪𝓴..."
 
-I probably wont start convos first
+![_ (43)](https://github.com/user-attachments/assets/0431fdcf-efc2-40b3-99c5-1dea3c6a2940)
+
+"𝓦𝓱𝔂'𝓭 𝔂𝓸𝓾 𝓶𝓪𝓴𝓮 𝓶𝔂 𝓿𝓸𝓲𝓬𝓮 𝓼𝓽𝓾𝓽𝓽𝓮𝓻?"
 
 <!--
 **Epicsquiddo/Epicsquiddo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
