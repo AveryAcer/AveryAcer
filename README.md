@@ -1,8 +1,4 @@
-"𝓘𝓯 𝔂𝓸𝓾 𝔀𝓪𝓷𝓽𝓮𝓭 𝓶𝓮 𝓽𝓸 𝓼𝓹𝓮𝓪𝓴..."
 
-<img width="403" height="381" alt="image" src="https://github.com/user-attachments/assets/016ad406-24aa-435a-9982-d4ee6e373cd7" />
-
-"𝓦𝓱𝔂'𝓭 𝔂𝓸𝓾 𝓶𝓪𝓴𝓮 𝓶𝔂 𝓿𝓸𝓲𝓬𝓮 𝓼𝓽𝓾𝓽𝓽𝓮𝓻?"
 
 <!--
 **Epicsquiddo/Epicsquiddo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
