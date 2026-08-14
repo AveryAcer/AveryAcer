@@ -1,35 +1,53 @@
-<img width="368" height="368" alt="#rphelp #fyp #follow (1)" src="https://github.com/user-attachments/assets/801e918a-0be6-47da-a02d-7dfd1d3dcee0" />
+<p align="center">
+⸝⸝ “𝘛𝘩𝘦 𝘴𝘯𝘰𝘸 𝘪𝘴 𝙨𝙤 𝙘𝙤𝙡𝙙”  ៸ ៸
+<p></p>
+
+<p align="center">
+<img width="367" height="367" alt="travis THE MOON I ROT BEHIND" src="https://github.com/user-attachments/assets/4d46341f-fa91-476d-91f0-b4a11c5e526a" />
+<p></p>
+
+<p align="center">
+  ‿︵‿︵‿︵‿︵ ✦ ︵‿︵‿︵‿︵‿
+<p></p>
+
+<p align="center">
+ᜑ “𝘢𝘯𝘥 𝘐 𝙛𝙤𝙧𝙜𝙚𝙩 𝘫𝘶𝘴𝘵 𝘸𝘩𝘢𝘵 𝘺𝘰𝘶 𝘴𝘢𝘪𝘥, 𝘺𝘦𝘢𝘩 𝘪𝘵'𝘴 𝙣𝙤𝙩 𝙘𝙡𝙚𝙖𝙧.” ᜑ
+<p></p>
+
+<p align="center">
+  ‿︵‿︵‿
+<p></p>
+
+<p align="center">
+𝙞𝙣𝙛𝙤:
+<p></p>
+
+<p align="center">
+𝘈𝘤𝘦 / 𝘊𝘢𝘮𝘦𝘳𝘰𝘯
+<p></p>
+
+<p align="center">
+𝙏𝙧𝙖𝙣𝙨𝙢𝙖𝙨𝙘 - 𝘩𝘦 / 𝘩𝘪𝘮
+<p></p>
+
+<p align="center">
+𝘐 𝘢𝘮 𝘢 𝘮𝘪𝘯𝘰𝘳, 𝟭𝟴+ 𝙞𝙬𝙘
+<p></p>
+
+<p align="center">
+𝘐 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘸𝘰𝘯'𝘵 𝘴𝘵𝘢𝘳𝘵 𝘤𝘰𝘯𝘷𝘰𝘴 𝘧𝘪𝘳𝘴𝘵, 𝘣𝘶𝘵 𝘢𝘯𝘺𝘰𝘯𝘦 𝘤𝘢𝘯 𝘪𝘯𝘵 !
+<p></p>
+
+<p align="center">
+  ‿︵‿︵‿
+<p></p>
+
+<p align="center">
+Basic DNI criteria
+<p></p>
+
+<p align="center">
+Fandoms int !
+<p></p>
 
 
-‿‿‿
-
-𝟷𝟻 ʏ/ᴏ.
-
-Tʀᴀɴꜱ𝚖𝚊𝚜𝚌 - 𝚑𝚎  /  ʜɪᴍ
-
-I𝚗𝚝𝚙
-
-I ᴍᴀʏ ʙᴇ ᴀꜰᴋ ꜱᴏᴍᴇᴛɪᴍᴇꜱ, ᴀᴘᴏʟᴏɢɪᴇꜱ ɪꜰ ɪ ᴅᴏɴ'ᴛ ʀᴇꜱᴘᴏɴᴅ - ɪꜰ ꜱᴏ, W2I!
-
-‿‿‿
-
-"𝚌𝚛𝚞𝚜𝚑𝚎𝚍 ʟɪᴋᴇ ᴀ 𝚋𝚞𝚐 ɪɴ ᴛʜᴇ ɢʀᴏᴜɴᴅ." ⌣⌣
-
-
-<img width="368" height="368" alt="_ - 2026-06-26T185616 347" src="https://github.com/user-attachments/assets/4bec3a8a-0579-497d-8055-06cb126a6e8c" />
-
-
-<!--
-**Epicsquiddo/Epicsquiddo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
